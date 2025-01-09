@@ -2,7 +2,7 @@
 
 91爆料网，让你做身边的一手吃瓜者
 
-最新入口，https://www.91blw27.com
+最新入口，https://www.91blw28.com
 
 App下载，https://29f6.wjdrkhox.org
 
